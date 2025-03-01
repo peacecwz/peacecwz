@@ -2,7 +2,7 @@
 
 ## Introducing myself
 
-I'm Baris, idea hacker and trying to build cool stuffs but ho-releaser and this is my public trash. If you want to take a look at my private trash, text me
+I'm Baris, idea hacker and trying to build cool stuffs but who-releaser and this is my public trash. If you want to take a look at my private trash, text me
 
 ## What am I doing?
 
